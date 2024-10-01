@@ -2,7 +2,6 @@
 - 👀 I’m interested in Making meaningful things
 - 🌱 I’m currently learning Game Dev
 - 💞️ I’m looking to collaborate on Game dev projects
-- 📫 How to reach me .ananypandey on discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am mentally unstable
 
